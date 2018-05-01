@@ -1,7 +1,7 @@
 # [VS001] Faraway Dreams/Social Box EP
 
-- ghoulcut & alg0rh1tm - Aakhu
-- ghoulcut & alg0rh1tm - Intercontinental
+- ghoulcut & alg0rh1tm - Faraway Dreams
+- ghoulcut & alg0rh1tm - Social Box
 
 **Release date:** 1 May 2018<br>
 **Mastering:** http://www.binaryfeedback.com/<br>
